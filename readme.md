@@ -2,8 +2,10 @@
 
 :sparkles: we are happy we are doing this!
 
-lorem ipsum
- lorem ipsum
+awesome were happy to day but you goes fast lol
+no * Coffe :coffee: Pizza  :pizza: for you Lol
+
+lorem ipsum lorem ipsum
 lorem ipsum
 lorem ipsum
 lorem ipsum
